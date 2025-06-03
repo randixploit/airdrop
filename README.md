@@ -5,3 +5,5 @@
 **WUMP**: [https://wump.xyz/join?ref=921312784661217350](https://wump.xyz/join?ref=921312784661217350)
 
 **HYRA AI**: [https://invite.ai.hyra.network/ref-4aef11c1336e7](https://invite.ai.hyra.network/ref-4aef11c1336e7)
+
+**Layer Edge**: i7CRw574
