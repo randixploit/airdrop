@@ -7,3 +7,5 @@
 **HYRA AI**: [https://invite.ai.hyra.network/ref-4aef11c1336e7](https://invite.ai.hyra.network/ref-4aef11c1336e7)
 
 **Layer Edge**: i7CRw574
+
+**Charkra**: [https://app.chakra.dev/?ref=PHFJ46](https://app.chakra.dev/?ref=PHFJ46)
